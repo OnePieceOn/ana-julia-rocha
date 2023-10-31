@@ -8,5 +8,18 @@
 - Projetos desafiadores e práticos que aprimoraram minhas habilidades.
 
 🌐 Vamos construir um mundo melhor com código! Explore meus repositórios e junte-se a mim nesta jornada emocionante.
+
+vim do [alura](https://www.alura.com.br)
+
 ![](https://media.tenor.com/e_G1SKuHsAsAAAAC/chopper-one.gif)
+
+
+
+caso queira entrar em comiga acesse meu email📧:
+
+@ana.arguello@escola.pr.gov.br
+
+![](https://github.com/OnePieceOn/ana-julia-rocha/assets/144803062/e898093d-4be9-46ff-919e-a1ff25d4b3d8)
+
+
 
